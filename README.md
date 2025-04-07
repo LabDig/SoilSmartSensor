@@ -19,8 +19,4 @@ Eduardo Leonel Bottega
 
 Marcelo Marques da Costa
 
-Karolaine Pinheiro de Oliveira
 
-Thiago Lessa de Almeida
-
-João Cleber Lima Duarte
